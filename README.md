@@ -2,7 +2,7 @@
 - 👀 I’m interested in Math, Roblox, Minecraft and Youtube!
 - 🌱 I’m currently learning Roblox Scripting
 - 💞️ I’m looking to collaborate on no one
-- 📫 How to reach me: nothing yet..
+- 📫 How to reach me: dylanavlol@gmail.com
 
 Hi Its me DylanDev I am a youtuber that makes gaming/Plush content and uh _Lego Destruction_.
 I also Make Games that i regret sooner for being too lazy.
